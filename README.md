@@ -27,7 +27,7 @@ The municipal building where I registered my daughter’s birth.
 A botanic garden is close by to my apartment.
 ![botanic garden near me](2020-07-12_12.58.38.jpeg)
 
-A picture from the center of Berlin.
+A picture from the center of Berlin. This is about an hour's train ride from Leipzig.
 ![Berlin center](2020-08-04_12.13.38.jpeg)
 
 Leipzig was relatively untouched during the wars. There are lots of historic buildings like these.
