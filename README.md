@@ -21,7 +21,7 @@ There is a park close to my apartment. My wife and I go there quite often, now w
 After a few hours hiking from Leipzig city center, you will find this little castle.
 ![castle](2020-08-08_15.33.17.jpg)
 
-The municipal building where I registered my daughter’s birth.
+A larger castle is the municipal building where I registered my daughter’s birth.
 ![Leipzig municipal building](burgstrasse_1_2020-07-02_14.54.11.jpg)
 
 A botanic garden is close by to my apartment.
