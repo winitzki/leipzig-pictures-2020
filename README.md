@@ -18,7 +18,7 @@ In Hamburg, my wife and I went to a concert with some opera music. The lobby of 
 There is a park close to my apartment. My wife and I go there quite often, now with the baby.
 ![park near me](park_2020-05-14_13.09.20.jpg)
 
-After a few hours hiking from Leipzig city center and you will find this little castle.
+After a few hours hiking from Leipzig city center, you will find this little castle.
 ![castle](2020-08-08_15.33.17.jpg)
 
 The municipal building where I registered my daughter’s birth.
